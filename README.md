@@ -3,7 +3,7 @@ a new psych dicussions because mayo closed it
 
 
 Rules:
-1:No spam (if you do i will put the label ''dumb''
+1:No spam (if you do i will put the label ''dumb'')
 
 2:NO HATING MAYO OK!?
 
